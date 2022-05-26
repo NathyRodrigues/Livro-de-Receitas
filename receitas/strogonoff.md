@@ -1,6 +1,6 @@
 ![](C:\Users\Nathy\Desktop\download (2).jpg)
 
-# 				**Strogonoff de Frango :chicken:**
+# 								**Strogonoff de Frango :chicken:**
 
 
 
