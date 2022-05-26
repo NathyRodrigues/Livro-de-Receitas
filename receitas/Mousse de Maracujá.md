@@ -1,6 +1,6 @@
-![](C:\Users\Nathy\Desktop\download (1).jpg)
+![](https://www.acasaencantada.com.br/wp-content/uploads/2021/01/mousse-de-maracuja-zero-acucar-a-casa-encantada.png.webp)
 
-# 								Mousse de Maracujá :yellow_heart:
+# 												Mousse de Maracujá :yellow_heart:
 
 
 

@@ -1,6 +1,6 @@
-![](C:\Users\Nathy\Desktop\download (2).jpg)
+![](https://www.unileverfoodsolutions.com.br/dam/global-ufs/mcos/SLA/calcmenu/recipes/BR-recipes/chicken-&-other-poultry-dishes/strogonoff-de-frango/main-header.jpg)
 
-# 								**Strogonoff de Frango :chicken:**
+# 											**Strogonoff de Frango :chicken:**
 
 
 
